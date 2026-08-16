@@ -1,6 +1,29 @@
-<p align="center" > <img width="100%" height="auto" src="https://64.media.tumblr.com/803ffd76cd91081a60fed5add89f6ae5/656f0e3fc4df9882-35/s2048x3072/8f36f4d3d0a46206731a56d03078fbb6535ae957.pnj" />
-<p align="center" > <img width="100%" height="auto" src="https://64.media.tumblr.com/5aaadecc82eeb033062fef6bee5c18c1/656f0e3fc4df9882-93/s1280x1920/3276a8cebe2420dc67734cc1ad9ee66998da6f66.pnj" />
-<p align="center" > <img width="100%" height="auto" src="https://64.media.tumblr.com/008461a348ed7e0840dd20a11d74862e/656f0e3fc4df9882-b1/s1280x1920/a22b30bb297ccd17e379cc02aff162d995ca16ca.pnj" />
-<img width="30%" height="auto" src="https://64.media.tumblr.com/1e81530efedc3c6b88d7653ad42a9b3c/443a8b8515ccb5c8-9e/s640x960/06487135ffcd62727b6e8307540931ef15770880.gifv" /> <img width="30%" height="auto" src="https://64.media.tumblr.com/fd864a7cc73f9f97b093f7f13c6f8cbf/443a8b8515ccb5c8-2b/s640x960/1fb3bf2a1fade99c1cdf7ef3236a7d22bf80d5df.gifv" />
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&pause=1000&color=B60F05&center=true&width=435&lines=i+see+timekeeper+and+croissant+as+related;+don't+come+for+me" alt="Typing SVG" /></a>
-<p align="center" > <img src="https://64.media.tumblr.com/e0741b989ac0d2d6d09d84d93598a086/656f0e3fc4df9882-4d/s2048x3072/50ed9fbe2a6a00a50e045e4b059d5dcf38c936b4.pnj" />
+<p align="center" > <img width="100%" height="auto" src="https://64.media.tumblr.com/e349c8c583a13c3c9c37896dcd3f0094/e049e439e3d9aadd-c4/s2048x3072/d82745a7951da3274b57b0cd3ab509a34938bae4.pnj" />
+<p align="left">
+  <p>   <img  align="right" width="40%" height="auto" src="https://i.postimg.cc/BQtkTwD3/image-removebg-preview-(24).png" />
+    
+<div align="right">
+
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+
+<div align="center">
+  
+$${\color{#178a8c} [ ⩇\ \ ⩇ ]  .⠀\ andre \ ou \ dirk \ }$$<br>
+$${\color{#367576} ⠀⠀ \ he \ ╱ him \ ╱ it \  .\\ }$$<br>
+$${\color{#567e7e} ⠀\ disabled \ \   \  .  \  \ \ iwec\ ⠀ }$$<br>
+$${\color{#8a8a8a}  \ I \ LOVE \  \ MY \ BF! \ 
+}$$<br>
+
+
+
+  </div>
+  <div align="center">
+
+
+</div>
+<p align="center" > <img width="15%" height="auto" src="https://64.media.tumblr.com/42cdca0218c3f2a1e08233ccdacb7e8b/3cbb0d597300bee9-27/s75x75_c1/8a66a523be4b71a7b5b3be805fcc22c7100711d1.gifv"
+
+</div>
+<p align="center" > <img src="https://64.media.tumblr.com/ac42e34c7931df0c910b6614b21761d5/282f2b11cc97f9bf-94/s1280x1920/f4f645f94dcd23464bb60635c40d17ec86c4c487.gifv" />
